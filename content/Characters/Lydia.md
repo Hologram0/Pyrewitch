@@ -1,0 +1,1 @@
+This puppet inhabits the cathedral they died in and is thought of as a ghost by the people who have happened to spot this puppet. Ideas for this character are welcome!

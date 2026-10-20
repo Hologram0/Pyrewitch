@@ -1,0 +1,6 @@
+See also: [[Puppet]]
+Clarification: Puppets are an undead creature that can be controlled by many potential entities (including the original soul the puppet came from). Dolls are the body of a puppet.
+
+Dolls can be made out of different materials, the most common being wood, simply because its easy to work with, and can last a long time. Fabric dolls have been made but are mostly experimental, as they are not as strong or dexterous as their wooden cousins, and often do not last as long. Ceramic dolls are the hardest to make, however can be made to look incredibly human, and can be used to interact with people as if they were human - so long as no one touches them.
+
+A puppet can also be made of the dead body of the person who died, and, while the easiest type of doll to make, becomes increasingly difficult to maintain as the body begins to decay. often the persons bones are used to keep the puppet functional as a puppet, but its not a requirement so long as the replacement limbs are correctly attached.

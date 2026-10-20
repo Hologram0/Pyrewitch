@@ -1,0 +1,9 @@
+The way to send puppets to the [[Realm of the Dead|afterlife]] as they should have gone when they died is through a type of funeral pyre - or burning the [[doll]]. Not just any fire can do this because not all fire burns in the realm of the living, the realm of the spirits, AND the realm of the dead. (A lot of fire can burn in one or two of these places but not all 3 at the same time). To create this fire involves rituals similar to funeral rights that connect the realm of the living to the realm of the dead (the spirit realm is in between these two, so it is included regardless). The fire becomes a portal to the realm of the dead, and when it is doused, the portal is closed for that soul.
+
+The first group of Pyrewitch were [[Godspeakers]] for the god of the sun, a group of warriors with a strong sense of justice called the Radiant's Shadow (interpreted as "they eclipse the sun when they attack their enemies" , or "the Radiant stands behind them" ). The Radiant (sun god) is said to travel to the realm of the dead during the night and return to the realm of the living during the day, and is known as a symbol of the passing between worlds (often depicted riding a chariot, guiding and protecting the recently passed to the realm of the dead)
+
+It is also said that the Radiant casts judgement on the realm of the living, bringing rain and sun as it sees fit.
+
+I think fire is used to travel between realms, but funerals provide direction to the realm of the dead, normally a human soul would travel through the spirit realm to the realm of the dead regardless of if they have proper funeral rights but it's an easier + faster journey if they do. Puppets are stuck in the spirit realm and need assistance to get through, and so fire provides the momentum and rights provide the direction
+
+Also a human soul without funeral rights can get stuck in the spirit realm, becoming ghosts.

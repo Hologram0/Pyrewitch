@@ -1,0 +1,9 @@
+{
+	"nodes":[
+		{"id":"636aa2b146874ab3","type":"file","file":"Artwork/PrimroseRubyScreenprint.png","x":-420,"y":-340,"width":275,"height":400},
+		{"id":"99ad17815290ebf5","type":"file","file":"Artwork/RubyRefsheet1.png","x":-120,"y":-340,"width":400,"height":287},
+		{"id":"06f3e35f573bd461","type":"text","text":"It might be worth Importing these images from my laptop...","x":-120,"y":-20,"width":400,"height":80},
+		{"id":"46c2a922c55c362f","x":-195,"y":202,"width":435,"height":158,"type":"text","text":"The most difficult part of Pyrewitch by far is the fact that the spirit realm and the living realm are directly overlapping and some characters can see into the spirit realm while others can't 😭 😭 depicting both at once is uhhhhhhh difficult"}
+	],
+	"edges":[]
+}

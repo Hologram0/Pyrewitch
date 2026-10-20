@@ -1,0 +1,1 @@
+I still need to figure out how the dead interact with the spirit realm, although I imagine many of the connections between the spirit and living realms are replicated somehow between the spirit and the dead 🤔 but id need to determine better what that all MEANS (what are the puppet and fairy equivalents in the afterlife if any? What does the after life look like? Ect)
